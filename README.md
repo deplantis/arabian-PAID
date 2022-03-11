@@ -8,3 +8,6 @@ sowwyyyy buttt iii wanttt somee githubb starss :vvv ii hopee uu cann forgivee me
 
 # what 
 ARABIAN MCPE HACKED CLIENT. DON'T WORK ON THE NEWEST VERSION OF MCPE. MCPE = MINECRAFT WINDOWS 10 EDITION.
+
+# notes 
+there is be a possibly that there are mallicious code in the code. watch out.. (Indianss peoplee alwayss scamm peoplee ://)
